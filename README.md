@@ -6,4 +6,4 @@
 - 🤔 I’m looking for help with ... Core Java
 - 💬 Ask me about ... Whether i need help 🤣
 - 📫 How to reach me: ... sbhardwaj2708@gmail.com
-- ⚡ Fun fact: ... I have travelled to 15 stated in India 😊
+- ⚡ Fun fact: ... I have travelled to 15 states in India 😊
